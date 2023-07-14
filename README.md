@@ -3,8 +3,6 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=gourav-yadavv&label=Profile%20views&color=62c676&style=plastic" alt="gourav-yadavv" /> </p>
 
-<p align="left"> <a href="https://twitter.com/gydv25" target="blank"><img src="https://img.shields.io/twitter/follow/gydv25?logo=twitter&style=for-the-badge" alt="gydv25" /></a> </p>
-
 - 📫 How to reach me **gyadav88897@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
