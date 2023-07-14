@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **gyadav88897@gmail.com**
 
-- 📄 Know about my experiences [**Gourav-Yadav-Resume.pdf**](https://drive.google.com/file/d/1nxpLFI1kX6nSItI1J28kVVzWy1RrX4nT/view?usp=drive_link)
+- 📄 Explore my achievements and aspirations [**Gourav-Yadav-Resume.pdf**](https://drive.google.com/file/d/1nxpLFI1kX6nSItI1J28kVVzWy1RrX4nT/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
